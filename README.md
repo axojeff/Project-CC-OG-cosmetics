@@ -1,4 +1,3 @@
 # Project-CC-OG-cosmetics
 
-im learning how to use github...
-im gonna post all of my cosmetics here
+Posting EVERY Cosmetic i make in here, mostly OG but some other ones!
